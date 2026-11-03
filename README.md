@@ -1,4 +1,4 @@
-# Hi there, I'm Milton Azibapu 👋
+# Hi there, I'm Milton Black 👋
 
 [![committers.top badge](https://user-badge.committers.top/nigeria_public/ArziBlack.svg)](https://user-badge.committers.top/nigeria_public/ArziBlack)
 
